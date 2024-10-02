@@ -50,6 +50,7 @@ Feed back
 Any suggestion and  feedback is welcome
 you can message me on  Instagram
 https://www.instagram.com/___rx.vicky135?utm_source=qr&igsh=NTBpOTBnbzljaHMx
+https://www.linkedin.com/in/shivanand-satyappa-nashi-79579821a
 
 
 
